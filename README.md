@@ -1,9 +1,5 @@
-## for the ones on ponytown
+- You've reached Romeos official profile! I am the one and only, so if you kin me then never talk to me. (cause youre trying too hard to be me)
 
-- C+H freely unless I have "dnt" in my name. Yes, its srs. No, I wont react if you boop me while on that status
-- NPD,SYSTEM,AUDHD,CPTSD,MDD.
-- FICTIONKIN of over 100+ characters. Literally Abaddon, doubles DNI.
-- Therian, yumeshipper
-- I LOVE wii deleted you and vs. chris <3
-- However I also like DW and Forsaken
-- You can ask to BMF , but be aware i'm not the best at keeping friendship.
+- I have NPD, DID, AUTISM, AND ADHD
+
+- *THE* physical, spiritual, and pyschological Romeo fictionkin. Anyone else is a fake.
